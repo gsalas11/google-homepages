@@ -1,1 +1,1 @@
-# google-homepages
+I dont have much of an idea of what I am doing. I am struggling to even set up the project so I can start actually working on it. But I will keep on trying and hopefully make something out of it. I wish to have a good understanding of what is actuall going on. I WILL persevere.
